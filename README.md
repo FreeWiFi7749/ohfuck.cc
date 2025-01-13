@@ -1,2 +1,2 @@
-# We-are.gay
-俺ら俺らゲイ
+# ohfuck.cc
+クソが
